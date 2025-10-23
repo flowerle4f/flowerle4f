@@ -8,7 +8,7 @@
 <p align="center"><br/> not a lover not a hater but a secret third thing ( found dead in miami )
 <p align="center"> almost exclusively on ponytown to people-watch ( most often with my friends ). you of course are still allowed to interact!<br/> please mind my terrible social anxiety.
 <p align="center"> i am fine with cuddles/silly rp/etc. by god i will fight through my fear. just do not overwhelm me please.<br/> obligatory disclaimer: kiss emoting with someone does not mean i ship anything. i use it exclusively for the sillies.
-<p align="center"> i respond to every whisper! sometimes takes a bit though. give me time to hype myself up.
+<p align="center"> i respond to every whisper! might take a bit though. give me time to hype myself up.
 <p align="center"> i main the healer/equivalent support role(s) in quite literally every game i play does that say enough about me. i hope it does.
 <p align="center"><br/> shoutout to my gay lovers<br/> 20.4.21 💐 2.6.21 💐 24.11.24
 
